@@ -1,1 +1,1 @@
-# NOTYESUX
+blooket-hacks
